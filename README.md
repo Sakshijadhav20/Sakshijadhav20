@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **sakshijad937@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1nzilsbmlhE7hFTAINy1iaf_GNl3bfN8u/view?usp=sharing](https://drive.google.com/file/d/1nzilsbmlhE7hFTAINy1iaf_GNl3bfN8u/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1q1AqomJkTp1dlPWSQ8-Y-HQIQcpK8YsS/view?usp=sharing]
 
 - ⚡ Fun fact **I see algorithms in everyday life!**
 
